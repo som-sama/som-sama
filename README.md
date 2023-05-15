@@ -1,4 +1,4 @@
-Just a curious mind finding purpose in technology.
+Just a curious mind finding purpose in life using technology.
 
 Aim in life is to work with technology which supports the upcoming generation and makes life easier.
 
